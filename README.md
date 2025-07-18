@@ -1,4 +1,4 @@
-# Karatu-2025 First Assignment
+# Karatu-2025 Assignment 1
 
 ## My AltSchool Profile
 
