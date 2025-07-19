@@ -18,4 +18,4 @@ I joined the AltSchool School of Engineering program (Cloud Engineering) to gain
 - Master core engineering concepts and practical skills.
 - Build innovative projects that make a positive impact.
 - Network with professionals and peers in the tech industry.
-- Prepare for a successful career in software engineering, specifically# Karatu-2025
+- Prepare for a successful career in cloud engineering.
